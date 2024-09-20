@@ -178,3 +178,63 @@ Lo cual es un absurdo incongruente, pero que abre dos preguntas, cuando menos:
 2) si se analizan las sospechas de manera individual y no como parte de  un relato conspirativo, se consigue alguna prueba como para creer en la posibilidad de una invervencion de los servicios en el secuestro?
 
 ## Los Montoneros
+
+Aunque a esta altura de la investigacion historica sobre las guerrillas peronistas resulta absurdo plantear
+sospechas de fascismo en los grupos originarios, durante bastante tiempo la adhesion a corrientes nacionalistas
+de algunos de sus miembros fue motivo de suspicacias al momento de trazar su historia.
+En los ultimos años se publicaron, como nunca antes, decenas de trabajor que investigan diferentes aspectos
+de las vida de las organizaciones armadas y las biografias de sus combatientes.
+Ahora se sabe con certeza los origenes y el desarrollo que llevo a los primeros militantes a elegir
+la opcion delas armas contra la dictadura de Ongania.
+Los Montoneros no pasaron de la derecha a la izquierda en una noche de insomnio, sino que se trato de un proceso
+en el que diversas tradiciones ideologicas fueron confluyendo.
+Bstara con la muestra de un acontecimiento precursor.
+Cuando el 1ero de Mayo de 1967, Ongania y altos funcionarios del gobierno -que habia prohibido las concentraciones obreras-, asistian a la "Misa del dia del Trabajador" en la Catedral, celebrada por Antonio
+Caggiano, un grupo de jovenes dirigidos por Juan Garcia Elorrio, entre los que se encontraba Fernando Abal Medina,
+interrumpio a los gritos la ceremonia para leer una oracion de protesta mientras arrojaban volantes sobre obispos y generales.
+Los panfletos denunciaban al gobierno en nombre de los trabajadores que _"[...] no pueden expresar libremente
+las angustias de sus familias y sindicatos frente a la accion devastadora de un plan economico al servicio
+del capitalismo, del imperialismo,de las oligarquias y en contra del pueblo [...] Que las libertades sindicales
+destruidas por el gobierno sean recuperadas definitivamente por y para la clase trabajadora mediante la organizacion y la lucha revolucionaria.
+Que la sangre de todos los martires del trabajo, en especial la de nuestra compañera Hilda Guerrero de Molina, nos impulse y aliente en medio del abandono y la traicion a la clase obrera por parte de sus falsos dirigentes [...]"_.
+
+En Julio de ese año el grupo viajo a La Habana para asistir a la primera conferencia de la Organizacion Latinoamericana de Solidaridad (OLAS).
+En la delegacion argentina, que estaba presidida por John William Cooke, estaban Norma Arrostito, Fernando Abal Medina y Emilio Maza.
+Los dos ultimos serian los jefes protomontoneros de Buenos Aires y Cordoba.
+
+Tambien hay que precisar que los fundadores de Montoneros, y muchos militantes que luego adhirieron a esa organizacion, tenian en comun con el resto del peronismo ciertas caracteristicas que es necesario tener en cuenta, especialmente su concepcion nacionalista.
+Dentro de esta perspectiva, pensaban que la liberacion nacional era posible mediante la movilizacion del conjunto del pueblo.
+Aun no pensaban a las Fuerzas Armadas como enemigas de la Nacion, sino como una parte de ella.
+En la tradicion peronista, se consideraba posible lograr que un sector de los militares abandonara su posicion
+antinacional y confluyera con las fuerzas de liberacion.
+Ignacio Velez, uno de los fundadores de Montoneros y participe del secuestro de Aramburu, piensa que ellos pasaron de un nacionalismo popular a una estrategia nacionalista revolucionaria con influencias marxistas, a partir del golpe de 1966:
+_"Pero nosotros veniamos del peronismo y esta unidad pueblo-ejercito seguia flotando.
+Hasta esa epoca [el golpe militar de 1966], los grupos de la resistencia peronista y los que luchaban por el 
+retorno de Peron, no se horrorizaban por tener alguna relacion con miembros de las Fuerzas Armadas [...]
+nuestro lider era un general, nuestros martires principales era un grupo de coroneles y generales asesinados por la "libertadora" [...] 
+No estaba tomada esta vision tan clara post Ongania [...]
+donde se radicalizo tambien el analisis de la estructura de clases y de la lucha en nuestro pais [...]
+Viene Ongania y Krieger Vasena [...]:
+dos payasos, eran nacionalistas declarativos, el enfrentamiento del grupo proto monto, y monto despues,
+era absoluto y total, no hay ninguna duda [...]
+Nuestro analisis vario y ahora las Fuerzas Armadas eran el brazo armado de la burquesia que defiende el capitalismo, pero en una primera etapa no era tan asi"_.
+
+Ernesto Jauretche, que se integro a Montoneros en 1973, y habia militado junto a Rodolfo Galimberti en las Juventudes Argentinas para la Emancipacion Nacional (JAEN), coincide:
+_"Nosotros eramos peronistas.
+A nosotros no se nos ocurria pensar en una vanguardia, pensabamos mas bien en una insurreccion, 
+en las grandes movilizaciones de masas y pensabamos ademas en una fuerza social integrada por todas las clases sociales y ademas en una fraccion de las fuerzas armadas.
+Pensabamos que sin fractura de las fuerzas armadas era imposible derrotarlas e instalar un proyecto popular.
+Ongania venia demostrando que los liberales eran mas fuertes que los nacionales"_.
+
+Las guerrillas peronistas tuvieron la particularidad de su pertenencia a un movimiento populista,
+aunque configuraran en el su corriente de izquierda armada.
+La consecuencia mas evidente de su identidad fue que no consideraron necesario, como era norma entre la 
+guerrilla marxista, la construccion del partido revolucionario.
+Mas que a otros grupos guerrilleros, la aceptacion de la identidad peronista los acercaba a las luchas sociales,
+en las que los peronistas eran mayoria, pero a cambio tenian su limite en las directivas de Peron y en las 
+acciones de los otros sectores del movimiento, tanto de los politicos como de los sindicales.
+El grado de autonomia de la politica montonera era, por ejemplo, mucho menor que la del PRT, y se desarrollaba en el marco de las contradicciones del peronismo.
+Como peronistas, los Montoneros feuron permeados por la cultura popular, en la forma simbolica que esta adquirio en la etapa de la resistencia;
+para ellos, en el colectivo peronista anidaba la esencia popular, sus luchas, sus martires, sus banderas.
+En este sentido, eran tan populistas como el movimiento al que se integraron.
+
